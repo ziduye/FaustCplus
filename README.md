@@ -12,3 +12,6 @@ Flash Avatar Upload Sina Twitter Crack+
 .FLA源文件请用Adobe Flash CS5或以上版本打开
 
 版权属于新浪微博原作者(未明，等你来领)
+
+
+http://www.cnblogs.com/randytech/p/4139285.html
